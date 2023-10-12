@@ -3,7 +3,7 @@
 മലവാണം, മൈരൻ, പൂറൻ, അണ്ടി ഇല്ലാത്തവൻ എന്നൊക്കെ പേരുള്ള ഒരു വാണം 😹🤣
 
 <div align="center">
-  <img border-radius: 15px src="https://i.imgur.com/jVRNFFj.jpeg" width="200" height="200"/> MULTI DEVICE BOT CREATED BY DEVIL SER 🖤
+  <img border-radius: 15px src="https://i.imgur.com/jVRNFFj.jpeg" width="200" height="200"/> 
 
 <p align="center">
   <a href="https://instagram.com/abbaan._"><img src="https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white"/> 
